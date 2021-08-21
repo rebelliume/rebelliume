@@ -1,0 +1,1 @@
+Fuck 🖕🏽 being Normal 🐋
